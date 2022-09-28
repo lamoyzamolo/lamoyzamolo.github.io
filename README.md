@@ -1,0 +1,1 @@
+# lamoyzamolo.github.io
